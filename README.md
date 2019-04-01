@@ -1,0 +1,1 @@
+# Voc-quer-privar-algu-m-de-um-computador..
